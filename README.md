@@ -1,6 +1,6 @@
 # Kevin J. Hacker, Ph.D.
 
-Bay Area, California 95014 | (650) 224-0959 | kevin.hacker1536@gmail.com | [linkedin.com/in/kjhacker](https://linkedin.com/in/kjhacker)
+Bay Area, California 95014  kevin.hacker1536@gmail.com | [linkedin.com/in/kjhacker](https://linkedin.com/in/kjhacker)
 
 ---
 
